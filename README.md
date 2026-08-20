@@ -1,6 +1,10 @@
-# I-m-so-stupid-.-
-hey you guys , I might be taking a break for now , I don't feel well , everyone just ignores me , 
-and I'm losing people , for more information I may be on pony town more less and less , 
-because now I realize no one waits for me , I wait for them .
-no one really cares for me , no one really wants me , so I might even be gone
-forever .
+# important !
+hello my cookies , I going to explain what I feel like you guys
+should be aware of . please respect my boundaries, if you want 
+me to be your friend , ACTUALLY CARE FOR ME . lots of people
+don't understand how I feel leftout so easily so don't just 
+sit there chatting with someone else knowing I'm there too. 
+PLEASE ACTUALLY MAKE ME JNTERESTED IN YOU!!! I'm tired of being
+the one who always opens their friend list , waiting for YOU
+that's all I really have to point out , I'm working on my strawpage 
+right now , I will be needing @sproutseedlymain s help ! if interested!
